@@ -1,1 +1,1 @@
-"#Joel Blanco"
+Joel Blanco
